@@ -5,7 +5,7 @@
 - 📫 How to reach me? Too much personal information shared already
 - ❤️ Will find me when its ready 
 - 🫵 Open to meeting new friends, opening my friendship group to learn as much as possible,
- in the least amount of time possible ;) Would appreciate someone who could take me under their wing and edumacate me
+ in the least amount of time possible I would appreciate someone who could take me under their wing and edumacate me
 
 <!---
 Gavlar1988/Gavlar1988 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
