@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Gavlar1988
+- 👋 Hi, I’m Gav
 - 👀 I’m interested in educating myself and wanting to learn something different - once iv learnt the basics il master the rest
 - 🌱 Slowly picking all this up feel abit out of my comfort zone at the moment
 - 💞️ Was a bit slow to pick up on things in life, struggled with mental health alot but learning more every day positive steps 🤓😎
