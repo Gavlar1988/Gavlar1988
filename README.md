@@ -2,7 +2,7 @@
 - 👀 I’m interested in educating myself and learning something different - once iv learnt the basics il master the rest
 - 🌱 Slowly picking all this up 
 - 💞️ Broken hearted 
-- 📫 How to reach me your having a bubble bath I wouldnt have a scooby doo
+- 📫 How to reach me? Too much personal information shared already
 - ❤️
 <!---
 Gavlar1988/Gavlar1988 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
