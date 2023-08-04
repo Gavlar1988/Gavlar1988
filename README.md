@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Gavlar1988
 - 👀 I’m interested in educating myself and learning something different - once iv learnt the basics il master the rest
 - 🌱 Slowly picking all this up 
-- 💞️ Broken hearted 
+- 💞️ Broken hearted and concentrating on me and learning something new
 - 📫 How to reach me? Too much personal information shared already
 - ❤️
 <!---
